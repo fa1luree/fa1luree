@@ -6,7 +6,7 @@
 whyㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀  ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀ ⠀⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀  
      　　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　　why               
      　　　　　　　　　　　why               
-     　　　　　　　　　its my fault  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀            
+     　　　　　　　　　its my fault… ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀            
 　　　　fault? 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+code&pause=1000&color=AE5D38&width=600&height=99&lines=%E3%80%80%E3%80%80%E3%80%80%E3%80%80give+it+your+best;%E3%80%80%E3%80%80%E3%80%80%E3%80%80+still+.+.;%E3%80%80%E3%80%80%E3%80%80%E3%80%80im+the+loser)](https://git.io/typing-svg)
