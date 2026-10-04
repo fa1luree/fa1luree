@@ -1,9 +1,9 @@
- take a look you might see  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀me⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ coming through 
- ㅤ<p align="center">  ⠀⠀a
+ I don’t mean anything anymore ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀I feel like⠀⠀⠀⠀⠀  ⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀⠀ you  
+ ㅤ<p align="center">  ⠀⠀hate
 
  
 
-parasite ⠀⠀⠀⠀⠀⠀  ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀ ⠀⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀  
+me ⠀⠀⠀⠀⠀⠀  ⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀ ⠀⠀⠀ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ⠀⠀⠀⠀⠀⠀  ⠀⠀⠀⠀  
      　　ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ　　
 　　　　.
 
